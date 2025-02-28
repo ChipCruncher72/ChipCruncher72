@@ -11,4 +11,5 @@ Other than that some of my other interests are:
 - Japanese
 - Music
 
-to name a few
+to name a few\
+my social media is linked on my profile if you want to check them out
